@@ -4,4 +4,4 @@
 - 💞️ I’m looking to collaborate on nothing.
 - 📫 How to reach me you can't
 
-# of Games under my belt - 0
+# Number of games under my belt - 0
